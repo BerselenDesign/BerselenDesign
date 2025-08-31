@@ -34,5 +34,5 @@
 ### **بیایید در ارتباط باشیم (Let's Connect)**
 
 *   **🌐 [وب‌سایت رسمی و مشاهده پروژه‌ها](https://berselen.com/)**
-*   **💼 [پروفایل لینکدین](https://www.linkedin.com/company/berselen)** 
+*   **💼 [پروفایل لینکدین](https://www.linkedin.com/in/berselen)** 
 *   **📸 [صفحه اینستاگرام](https://www.instagram.com/berselen_com)**
